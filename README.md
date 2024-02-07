@@ -1,0 +1,1 @@
+# seletiva-wsc-mobile
